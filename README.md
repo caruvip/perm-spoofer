@@ -1,7 +1,7 @@
 # perm-spoofer
 
 
-buy your license key here: https://cservice.sellpass.io/products/PERM-SPOOFER
+buy your license key here: https://cservice.sellpass.io/products/PERM-SPOOFER | 
 download the laucher from, and only this github page
 
 
